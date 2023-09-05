@@ -1,6 +1,6 @@
 # RESUME
 
-![Profile Image](https://your-image-url.com)
+![Profile Image](https://hyperbrain143.files.wordpress.com/2022/06/62cdee3015e27af99a5c0e283c32d220-edited-2.jpg)
 
 ## MIDATHA VICKY
 ### Creative Director
